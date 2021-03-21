@@ -2,7 +2,7 @@
 
 ___
 
-![error](https://drive.google.com/file/d/1X2VTmLxd64c9jzyaObn94O7UVx29KRa7/view?usp=sharing)
+![error](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRTvsi_Np68571BVw4w_TcG69BThz-WYL3Fpg&usqp=CAU)
 
 ___
 Número de legajo: 11227
